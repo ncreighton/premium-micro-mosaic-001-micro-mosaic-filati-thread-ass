@@ -1,0 +1,2 @@
+# premium-micro-mosaic-001-micro-mosaic-filati-thread-ass
+Struggling to keep your filati thread colors organized during intricate micro mosaic assembly? The scattered color swatches, tangled threads, and lost progress notes are killing your creative momentum—and this template solves it all in one beautifully structured workspace.  The Micro Mosaic Filati Thread Assembly Guide is a purpose-built Notion tem
